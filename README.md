@@ -1,4 +1,10 @@
-# Mandarin Orange and Ginger Lamb
+ Table of Contents
+
+- [Mandarin Orange and Ginger Lamb](#mandarin-orange-and-ginger-lamb)
+- [Grilled Portobello Mushroom Burger](#grilled-portobello-mushroom-burger)
+- [Classic Margherita Pizza](#classic-margherita-pizza)
+
+## Mandarin Orange and Ginger Lamb
 
 - [Ingredients](#mandarin-orange-and-ginger-lamb-ingredients)
 - [Instructions](#mandarin-orange-and-ginger-lamb-instructions)
