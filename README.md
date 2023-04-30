@@ -1,3 +1,7 @@
+# Table of Contents
+
+- [Mandarin Orange and Ginger Lamb](#mandarin-orange-and-ginger-lamb)
+
 # Mandarin Orange and Ginger Lamb Recipe
 
 ## Ingredients:
